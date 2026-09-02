@@ -1,1 +1,1 @@
-# Zz.ud
+this is full ai
